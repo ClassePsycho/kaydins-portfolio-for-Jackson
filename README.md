@@ -1,1 +1,0 @@
-# kaydins-portfolio-for-Jackson
